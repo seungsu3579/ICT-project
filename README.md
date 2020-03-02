@@ -1,3 +1,0 @@
-# ICT-project
-
-## seungsu
